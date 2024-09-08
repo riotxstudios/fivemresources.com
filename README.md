@@ -8,7 +8,7 @@ have questions? join Qbox's Server https://discord.gg/qbox
 
 IDEAS
 
-------------------------------------------------------------------------------------------
+
 
 main pages SEARCH TUTORIALS FRAMEWORK SCRIPTS MLOS VEHICLES CREATORS BLACKLISTED CREATORS
 
